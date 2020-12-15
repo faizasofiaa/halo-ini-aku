@@ -1,2 +1,2 @@
 # halo sayang
-muach 
+Kamu apa kabar ? semoga kamu baik baik aja ya
